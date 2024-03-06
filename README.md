@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @hdspin
-- 👀 I’m interested in banyak bonus menarik di sini !!!
-- 🌱 I’m currently learning bonus deposit !!!
-- 💞️ I’m looking to collaborate on bonus new member !!!
-- 📫 How to reach me online 1x24jam !!!
-- 😄 Pronouns: layanan sangat ramah !!!
-- ⚡ Fun fact: fast respon !!!
+- 👀 ada banyak bonus menarik di sini !!!
+- 🌱 contohnya bonus deposit !!!
+- 💞️ dan ada juga bonus new member !!!
+- 📫 hubungi kami online 1x24jam !!!
+- 😄 admin dhea layanan sangat ramah !!!
+- ⚡  fast respon !!!
 
 <!---
 hdspin/hdspin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
